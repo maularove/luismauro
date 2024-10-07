@@ -3,3 +3,4 @@ que no trabajas nada
 realmente eres vago
 pedrito navaja lo llevo la muerte
 dios que hater perdon luis
+es mentira, adios luis muere
